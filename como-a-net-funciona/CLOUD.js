@@ -1,0 +1,1 @@
+//cloud é alugar o pc ou servidor dfde outra pessoa
